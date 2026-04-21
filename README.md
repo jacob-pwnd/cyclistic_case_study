@@ -8,7 +8,6 @@ According to the Data License Agreement, I am unable to upload the original data
 ### [Watch Analysis on YouTube](https://youtu.be/O9BpFhaUzVg)
 
 
-Presentation of findings will be available on 4/20 at 9:45am ET
 
 [![Watch the video](https://img.youtube.com/vi/79AH2Qm4hvs/maxresdefault.jpg)](https://youtu.be/79AH2Qm4hvs)
 
